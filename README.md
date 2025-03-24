@@ -2,12 +2,12 @@
 
 📚 I am a senior Mathematics Major with Computer Science and Data Science Minors at Washington and Lee University.
 
-🔭 I’m currently working on graduate school and job applications as well as learning more about Software Development in my computer science class!
+🔭 I am an incoming Mathematics, Associate Professional Staff I at the Johns Hopkins University Applied Physics Lab.  
 
-🌱 I’m also learning more about Real Analysis, Abstract Algebra, and Social Networks in my other classes.
+🌱 I am interested in utilizing applied and computational mathematics to support others within military operations and biomechanics.
 
-🏃‍♀️ My favorite hobby is running, but I also enjoy going on hikes and playing soccer.
+🏃‍♀️ I love running, hiking, and playing sports outdoors.
 
-👩‍🏫 I also love teaching and mentoring elementary and middle school students.
+👩‍🏫 I also love teaching and mentoring younger students.
 
-⚡ Three fun facts about me are: I don't like chocolate, I ran a half marathon and am hoping to run a full marathon and a triathlon in the future, and my sister is my best friend!
+⚡ Three fun facts about me are: I don't like chocolate, I have ran two half marathon and am hoping to run a full marathon in the future, and my younger sister is my best friend!
